@@ -4,6 +4,9 @@
 
 🔥 Experience the ultimate tactical challenge: [Sprunki Garnold Edition](https://sprunksters.com/sprunki-garnold-edition/ "Sprunki Garnold Edition")
 
+🔥 Discover new strategic dimensions: [Sprunki Garnold Edition](https://sprunkiscrunkly.com/sprunki-garnold-edition/ "Sprunki Garnold Edition")
+
+🔥 Unleash your command potential: [Sprunki Garnold Edition](https://sprunkipyramixed.com/sprunki-garnold-edition/ "Sprunki Garnold Edition")
 
 Dive into Sprunki Garnold Edition's revolutionary tactical universe, where every decision shapes the outcome of post-apocalyptic battles. As the 8th character in the Sprunki universe and 3rd effect in Incredibox mod, Garnold brings unique strategic elements to this turn-based masterpiece.
 
@@ -80,3 +83,5 @@ Currently Sprunki Garnold Edition is optimized for desktop but mobile accessibil
 Sprunki Garnold Edition awaits your command! Experience the perfect blend of strategic depth and accessible gameplay in this groundbreaking tactical experience.
 
 - [Begin Your Tactical Journey - Free Play](https://sprunksters.com/sprunki-garnold-edition/)
+- [Explore Advanced Strategies - Free Play](https://sprunkiscrunkly.com/sprunki-garnold-edition/)
+- [Master Garnold's Tactics - Free Play](https://sprunkipyramixed.com/sprunki-garnold-edition/)
